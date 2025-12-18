@@ -4,6 +4,7 @@
 
 # https://t.me/AnnfisaWolford_bot
 
+<img width="668" height="1000" alt="image" src="https://github.com/user-attachments/assets/d0368fd7-7ba8-4f6f-9a62-5662fd27f050" />
 
 
 
